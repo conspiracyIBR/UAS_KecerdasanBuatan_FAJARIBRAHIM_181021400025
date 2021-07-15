@@ -1,0 +1,1 @@
+# UAS_KecerdasanBuatan_FAJARIBRAHIM_181021400025
